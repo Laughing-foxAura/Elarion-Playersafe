@@ -22,7 +22,7 @@
 
 ## Hidden Properties
 
-`~- The staff has been known to flicker or chime erratically in the presence of corrupted souls pretending righteousness.~`  
+`~- The staff has been known to flicker or chime erratically in the presence of corrupted souls pretending righteousness.~`
 `~- On rare nights—especially after celestial events—witnesses claim they’ve seen the staff “glow with wings,” casting the silhouette of a weeping angel on the chamber wall.~`  
 `~- It is said the staff is awaiting a successor—one whose soul could bear the same burden, should Vivi ever falter.~`
 
